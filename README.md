@@ -1,1 +1,1 @@
-# MLP-FIM-Traditional-Chinese
+彩虹小馬 : 友誼就是魔法 繁體中文字幕
